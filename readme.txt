@@ -1,0 +1,3 @@
+MARTIN ADRIAN NANDA
+0822 8492 2857
+Jl.Diponegoro XI ,Gg.Thamrin 2 ,Gobah
